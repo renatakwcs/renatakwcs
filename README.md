@@ -1,4 +1,4 @@
-## Oiii eu sou a Renata Santos, desenvolvedora Full-Stack!
+## Oii eu sou Renata Santos, desenvolvedora Full-Stack!
 
 
 
